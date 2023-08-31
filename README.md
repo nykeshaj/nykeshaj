@@ -13,7 +13,7 @@ In my current role, I am responsible for conducting research and evaluation proj
 - Rental Unit Analysis
 
 ### :mortar_board: Education
-I received my Bachelor's of Science (BS) in Public Health from Rutgers University in 2017 and my Master's in Public Health (MPH) in Epidemiology & Bisotatistics from Drexel University in 2021. 
+I received my Bachelor's of Science (BS) in Public Health from Rutgers University in 2017 and my Master's in Public Health (MPH) in Epidemiology & Biostatistics from Drexel University in 2021. 
 
 https://www.linkedin.com/in/nykeshajohnson/
 
